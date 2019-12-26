@@ -1,1 +1,1 @@
-# monster-s-cave
+# Rule of Knight
